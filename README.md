@@ -5,7 +5,7 @@
 <p aligh="center">
   <img src= ee4cc9fad6deaa7f84cf3f6f69466ca9.jpg
 
-puedo llegar ahí molestarte y acosarte un poco si apenas te conozco,,, 
+Umamusume ° Cookie run ° Fsk ° Sb °
 
 ### 
 
