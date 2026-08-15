@@ -4,7 +4,10 @@
   ## (･.･ﾉʰⁱⁱ I'm Mortis!! 
 <p aligh="center">
   <img src= ee4cc9fad6deaa7f84cf3f6f69466ca9.jpg
-<p align="center">
+
+puedo llegar ahí molestarte y acosarte un poco si apenas te conozco,,, 
+
+  <p align="center">
   <img
 src="https://media.tenor.com/KGcqXRQarswAAAAi/goodbye-hello.gif" width="200">
 </p>
