@@ -7,7 +7,7 @@
 
 Umamusume ° Cookie run ° Fsk ° Sb °
 
-### 
+### ${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://unhappy.straw.page) <img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_5d7acf320acdbd8be8b440e21bd80758_f16edab9_100.gif" width="25%">
 
   <p aligh="left"width="250" style:"margin-right: 10;">
   <img
