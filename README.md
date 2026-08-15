@@ -26,6 +26,6 @@ src="https://media.tenor.com/KGcqXRQarswAAAAi/goodbye-hello.gif" width="200">
 I Love My Gf Hehe
 </h6>
 
-<𝚙 𝚊𝚕𝚒𝚐𝚗="𝚌𝚎𝚗𝚝𝚎𝚛"  ">
-<𝚒𝚖𝚐
-𝚜𝚛𝚌="e2bb898714f8f8bb373f3b921ab1f757.jpg"
+<p align="center">
+  <img src="e2bb898714f8f8bb373f3b921ab1f757.jpg" alt="e2bb898714f8f8bb373f3b921ab1f757.jpg">
+
